@@ -1,4 +1,4 @@
-Master in Computer Application
+Master in Computer Applications
 
 Semester 1
 
